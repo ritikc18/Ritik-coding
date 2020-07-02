@@ -1,1 +1,1 @@
-# Ritik-s-coding
+# Ritik-coding
